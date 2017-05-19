@@ -66,6 +66,7 @@ Portland was given the name [Coffee Land](https://www.youtube.com/watch?v=uRtx33
 ##### Coffee Shops and Roasters
 * [Cellar Door](https://www.cellardoorcoffee.com/)
 * [Coava Coffee](http://coavacoffee.com/)
+* [Elevator Cafe and Commons](http://www.elevatorpdx.com/)
 * [Heart Roasters](http://www.heartroasters.com/)
 * [Ristretto Roasters](http://ristrettoroasters.com/)
 * [Stumptown Coffee](http://www.stumptowncoffee.com/)
@@ -182,12 +183,11 @@ ALWAYS CROSS THE MORRISON BRIDGE ON THE SOUTH SIDE ([The stairs on the north-sid
 ##### Montavilla (get a cab here, spend the day, go home drunk and happy):
 
  * [Vintage Cocktail Lounge](http://vintagepdx.com) - Best cocktails for the price in the city
- * [Observatory / Over & Out](http://www.theobservatorypdx.com) - Great food, Over&Out in back is their less crowded bar (its a Mullet Bar - formal in the front, party in the back)
+ * [Observatory / Over & Out](http://www.theobservatorypdx.com) - Great food, Over&Out in back is their less crowded bar
  * [Country Cat](http://thecountrycat.net) - House made everything
  * ~~[Tanuki](http://www.tanukipdx.com) - Izakiya and Big Tit Zombie - don't bother if you have allergies or dietary restrictions or don't like watching Japanese B grade horror movies while you eat kimchi and jellyfish salad~~ Cannot recommend anymore, service has declined
  * [Roscoes](http://www.roscoespdx.com) - Tons of beer and po' boys. Sushi bar attached is great.
  * [Bipartisan Cafe](http://www.bipartisancafe.com) - Pie!
- * [Red Wood](http://redwoodpdx.com/) - Standard gastro pub fare, some southwest flavors, beef tongue, etc.
 
 #### Food by Genre
 
